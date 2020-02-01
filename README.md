@@ -1,0 +1,4 @@
+# Evocracy Whitepaper
+
+
+
